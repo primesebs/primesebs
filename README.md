@@ -4,6 +4,5 @@
 <br>
 <br>
 $\color{#7D5B40}{\textsf{Follower goal: 60-70.}}$
-
-
+<br>
 </div>
