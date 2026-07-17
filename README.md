@@ -5,7 +5,5 @@
 <br>
 <span style="color: #6747;">Follower goal on main: 60-70.</span>
 <br>
-·
-[Main](https://github.com/sebvsene)
-·
+
 </div>
