@@ -6,7 +6,7 @@
 <br>
 <br>
 
-$\color{#FEEB9B}{\textsf{Follower Count:}}$ $\color{#FEFCE3}{\textsf{522!!}}$
+$\color{#FEEB9B}{\textsf{Follower Count:}}$ $\color{#FEFCE3}{\textsf{759!!}}$
 
 <br>
 </div>
