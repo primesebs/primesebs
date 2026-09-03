@@ -9,6 +9,9 @@ $\color{#FFF6E5}{\textsf{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}}$
 $\color{#A06CB4}{\textsf{Follower Count:}}$ $\color{#F88CBC}{\textsf{3.4k!!}}$
 
 <img width="450" height="450" alt="Untitled80_20260903010245" src="https://github.com/user-attachments/assets/7c6ada00-8e59-48c4-b641-12d7b67cd67b" />
+
+$\color{#A06CB4}{\textsf{Follow}}$ $\color{#F88CBC}{\textsf{main}}$ [here!!](https://github.com/sebvsene)
+
 <img width="" height="" alt="Untitled79_20260903005733" src="https://github.com/user-attachments/assets/fd36f628-6fce-409a-9ce9-a03f9237e217" />
 <br>
 </div>
