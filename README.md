@@ -2,9 +2,11 @@
 
 <img width="" height="" alt="Untitled79_20260903011231" src="https://github.com/user-attachments/assets/ee4ac376-72b6-47da-9711-3bf440a58f26" />
 
+$\color{#FFF6E5}{\textsf{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}}$
+
 $\color{#A06CB4}{\textsf{Follower Goal:}}$ $\color{#F88CBC}{\textsf{200-300!}}$ 
 
-$\color{#FFF6E5}{\textsf{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}}$
+$\color{#FFF6E5}{\textsf{⊹ ࣪ ˖}}$
 
 $\color{#A06CB4}{\textsf{Follower Count:}}$ $\color{#F88CBC}{\textsf{3.4k!!}}$
 
