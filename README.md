@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="" height="" alt="Untitled79_20260903005738" src="https://github.com/user-attachments/assets/8befb45b-484c-4174-bae8-2d67ea3f0d7f" /> 
+<img width="" height="" alt="Untitled79_20260903011231" src="https://github.com/user-attachments/assets/ee4ac376-72b6-47da-9711-3bf440a58f26" />
 
 $\color{#A06CB4}{\textsf{Follower Goal:}}$ $\color{#F88CBC}{\textsf{200-300!}}$ 
 
