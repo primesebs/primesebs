@@ -14,6 +14,6 @@ $\color{#FFF6E5}{\textsf{۶ৎ}}$
 
 $\color{#A06CB4}{\textsf{Follow}}$ $\color{#F88CBC}{\textsf{main}}$ [here!!](https://github.com/sebvsene)
 
-<img width="" height="" alt="Untitled79_20260903005733" src="https://github.com/user-attachments/assets/fd36f628-6fce-409a-9ce9-a03f9237e217" />
+<img width="" height="" alt="Untitled79_20260903012212" src="https://github.com/user-attachments/assets/771636d2-c09d-4229-be86-ee4b8b9c227b" />
 <br>
 </div>
