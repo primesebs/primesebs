@@ -8,13 +8,11 @@ $\color{#A06CB4}{\textsf{Follower Goal:}}$ $\color{#F88CBC}{\textsf{200-300!}}$
 
 $\color{#FFF6E5}{\textsf{⊹ ࣪ ˖}}$
 
-$\color{#A06CB4}{\textsf{Follower Count:}}$ $\color{#F88CBC}{\textsf{3.4k!!}}$
+$\color{#A06CB4}{\textsf{Follow}}$ $\color{#F88CBC}{\textsf{main}}$ [here!!](https://github.com/sebvsene)
 
 <img width="450" height="450" alt="Untitled80_20260903010245" src="https://github.com/user-attachments/assets/7c6ada00-8e59-48c4-b641-12d7b67cd67b" />
 
 $\color{#FFF6E5}{\textsf{۶ৎ}}$
-
-$\color{#A06CB4}{\textsf{Follow}}$ $\color{#F88CBC}{\textsf{main}}$ [here!!](https://github.com/sebvsene)
 
 <img width="" height="" alt="IMG_1087" src="https://github.com/user-attachments/assets/89824672-a21e-417f-9188-769115a7edb3" />
 
